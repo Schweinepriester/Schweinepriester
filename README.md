@@ -1,5 +1,7 @@
 ### Hello there!
 
+![](https://thumbs.gfycat.com/MeagerHardtofindAlbertosaurus-size_restricted.gif)
+
 <!--
 **Schweinepriester/Schweinepriester** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
