@@ -1,7 +1,5 @@
 ### Hello there!
 
-https://user-images.githubusercontent.com/2644614/116942084-2eb7a000-ac71-11eb-9808-c2d72104f2ce.mp4
-
 ![](https://raw.githubusercontent.com/Schweinepriester/Schweinepriester/master/MeagerHardtofindAlbertosaurus-size_restricted.gif)  
 [Source](https://gfycat.com/meagerhardtofindalbertosaurus-hello-there-star-wars-prequelmemes)
 
