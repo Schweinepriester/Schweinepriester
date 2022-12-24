@@ -5,9 +5,9 @@
 
 ### Achievements
 
-Do you have or know an Achievement not listed [here](https://github.com/Schweinepriester/github-profile-achievements#achievements)? Let me know! :)
+Do you have or know an Achievement not listed [here](https://github.com/SubhamSubhasisPatra/github-profile-achievements#achievements)? Let me know! :)
 
-![](https://komarev.com/ghpvc/?username=Schweinepriester)
+![](https://komarev.com/ghpvc/?username=SubhamSubhasisPatra)
 
 <!--
 **Schweinepriester/Schweinepriester** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
