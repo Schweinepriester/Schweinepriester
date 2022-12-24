@@ -5,7 +5,7 @@
 
 ### Achievements
 
-Do you have or know an Achievement not listed [here](https://github.com/SubhamSubhasisPatra/github-profile-achievements#achievements)? Let me know! :)
+Do you have or know an Achievement not listed [here](https://github.com/SubhamSubhasisPatra?tab=achievements)? Let me know! :)
 
 ![](https://komarev.com/ghpvc/?username=SubhamSubhasisPatra)
 
