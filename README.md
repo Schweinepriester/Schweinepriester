@@ -1,7 +1,7 @@
 ### Hello there!
 
 ![](/MeagerHardtofindAlbertosaurus-size_restricted.gif)  
-[Source](https://gfycat.com/meagerhardtofindalbertosaurus-hello-there-star-wars-prequelmemes)
+[Source](https://web.archive.org/web/20230818194820/https://gfycat.com/meagerhardtofindalbertosaurus-hello-there-star-wars-prequelmemes) [✞](https://en.wikipedia.org/wiki/Gfycat)
 
 ### Achievements
 
